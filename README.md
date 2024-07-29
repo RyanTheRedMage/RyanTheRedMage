@@ -10,5 +10,3 @@ Entre em contato comigo 📞
 ryandlima08@gmail.com 
 
 @ryandlima 
-
-![](https://tenor.com/pt-BR/view/nice-gif-12775767502946483088)
